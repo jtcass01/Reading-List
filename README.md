@@ -13,7 +13,7 @@ A list of the most impactful books in my library.  Suggestions are welcome.
 
 ##### 5. [Billions & Billions: Thoughts on Life and Death at the Brink of the Millienium - Carl Sagan](https://www.amazon.com/Billions-Thoughts-Death-Brink-Millennium/dp/0679411607/ref=tmm_hrd_swatch_0?_encoding=UTF8&qid=1603188141&sr=1-3)
 
-##### 6. [The Power of Now - Eckhart Tolle](https://www.amazon.com/Power-Now-Guide-Spiritual-Enlightenment/dp/1577311523/ref=tmm_hrd_swatch_0?_encoding=UTF8&qid=1603188121&sr=1-2)
+##### 6. [The Power of Now: A Guide to Spiritual Enlightenment - Eckhart Tolle](https://www.amazon.com/Power-Now-Guide-Spiritual-Enlightenment/dp/1577311523/ref=tmm_hrd_swatch_0?_encoding=UTF8&qid=1603188121&sr=1-2)
 
 ##### 7. [Sapiens: A Brief History of Humankind - Yuval Noah Harari](https://www.amazon.com/gp/product/0062316095/ref=ppx_yo_dt_b_asin_title_o07_s01?ie=UTF8&psc=1)
 
