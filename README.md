@@ -7,7 +7,7 @@ A list of the most impactful books in my library.  Suggestions are welcome.
 
 ##### 2. [The Enchiridion - Epictetus](https://www.amazon.com/gp/product/1680921959/ref=ppx_yo_dt_b_asin_title_o07_s00?ie=UTF8&psc=1)
 
-##### 3. [Meditations: A New Translation - Marcus Aurelius (Author), Gregory Hays (Translator](https://www.amazon.com/Meditations-New-Translation-Marcus-Aurelius/dp/0812968255/ref=pd_lpo_14_t_0/143-5005739-8086428?_encoding=UTF8&pd_rd_i=0812968255&pd_rd_r=3d54cde9-4c59-4a75-9363-9da91061de0a&pd_rd_w=aj2OF&pd_rd_wg=0LwbJ&pf_rd_p=7b36d496-f366-4631-94d3-61b87b52511b&pf_rd_r=SV348XFEP0FZ6CZABM9T&psc=1&refRID=SV348XFEP0FZ6CZABM9T)
+##### 3. [Meditations: A New Translation - Marcus Aurelius (Author), Gregory Hays (Translator)](https://www.amazon.com/Meditations-New-Translation-Marcus-Aurelius/dp/0812968255/ref=pd_lpo_14_t_0/143-5005739-8086428?_encoding=UTF8&pd_rd_i=0812968255&pd_rd_r=3d54cde9-4c59-4a75-9363-9da91061de0a&pd_rd_w=aj2OF&pd_rd_wg=0LwbJ&pf_rd_p=7b36d496-f366-4631-94d3-61b87b52511b&pf_rd_r=SV348XFEP0FZ6CZABM9T&psc=1&refRID=SV348XFEP0FZ6CZABM9T)
 
 ##### 4. [How to Win Friends and Influence People - Dale Carnegie](https://www.amazon.com/How-Win-Friends-Influence-People/dp/0671027034)
 
